@@ -1,7 +1,10 @@
 # NegacesOsuSkins
 Negaces Socials : [Youtube](https://www.youtube.com/c/Negaces) // [Twitch](https://www.twitch.tv/negaces)
-Negaces' most used skins + most used cursors that may be overwriting original skin cursor when playing on stream (
+
+Negaces' most used skins + most used cursors that may be overwriting original skin cursor when playing on stream
+
 Last update: July06-2021
+
 Just click the name to download 
 
 # For NM
@@ -44,10 +47,10 @@ Just click the name to download
 
 # [Cursors (click to go to folder with cursors)](https://drive.google.com/drive/folders/109ZAlsHuj9gGAcO-XQTv2lNX3CXXp7uu?usp=sharing)
 # [Blue w/ face (no trail)](https://drive.google.com/drive/folders/1XQnyFeEUvQarj1K-8_Uxdn7uq5TwD2up?usp=sharing)
-![](https://prnt.sc/18xliao)
+![](https://i.imgur.com/lFcvxI1.png)
 # [Green (no trail)](https://drive.google.com/drive/folders/1XQnyFeEUvQarj1K-8_Uxdn7uq5TwD2up?usp=sharing)
-![](https://prnt.sc/18xlrrm)
+![](https://i.imgur.com/aGmGUdZ.png)
 # [smooth yellow (normal trail)](https://drive.google.com/drive/folders/1MMHVOtLL7KMxjkOd6g_QwAk6ABqT_CS-?usp=sharing)
-![](https://prnt.sc/18xlvoz)
+![](https://i.imgur.com/YtSbW9T.png)
 # [white (normal trail)](https://drive.google.com/drive/folders/1bzLXkWPgYE74qtC5XG1JeZI7FBk_15Bf?usp=sharing)
-![](https://prnt.sc/18xlz86)
+![](https://i.imgur.com/FLI3pUQ.png)
