@@ -1,5 +1,5 @@
 # NegacesOsuSkins
-Negaces Socials : [Youtube](https://www.youtube.com/c/Negaces) // [Twitch](https://www.twitch.tv/negaces)
+Negaces' Socials : [Youtube](https://www.youtube.com/c/Negaces) // [Twitch](https://www.twitch.tv/negaces)
 
 Negaces' most used skins + most used cursors that may be overwriting original skin cursor when playing on stream
 
