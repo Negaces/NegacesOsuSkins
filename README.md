@@ -7,6 +7,8 @@ Last update: July06-2021
 
 Just click the name to download 
 
+# [Skins (click to go to folder with all skins)](https://drive.google.com/drive/folders/1ymRu3UgvJyiWVFXv4Gx8njJRRBVzG3MD?usp=sharing)
+
 # For NM
 # [Aristia (Edit)](https://drive.google.com/file/d/1rXxdm7Gx0pyCY2FKFzPkGZInl4KYUoxk/view?usp=sharing)
 ![](https://i.imgur.com/EejI4JE.jpeg)
@@ -37,15 +39,24 @@ Just click the name to download
 # [Prawilosc idk](https://drive.google.com/file/d/1aAplrvKnGie2D4XG6BJOEwHzGRXAR6gM/view?usp=sharing)
 ![](https://i.imgur.com/LsaXfSw.jpeg)
 
+# [boop HD keqing yellow cursor](https://drive.google.com/file/d/1jYHIEmv4aVJqtHZK3eR2WSqPTgh8E8Ia/view?usp=sharing)
+![](https://i.imgur.com/vflucSV.png)
+
 # For HDHR
 # [kablaze azerino](https://drive.google.com/file/d/1I8zpmK1bmsXLQk87vklpZqTYmM3kT1Ba/view?usp=sharing)
 ![](https://i.imgur.com/WdS7VwC.jpeg)
+
+# [Mathi](https://drive.google.com/file/d/1fEuRaZ0lh4dkobtIPE-dAK3UJKNmceEH/view?usp=sharing)
+![](https://i.imgur.com/Zb4r6aY.png)
 
 # For EZ
 # [Woey](https://drive.google.com/file/d/1klGUydAp-8ywXdEsmwtd6PtV0rLkkq6l/view?usp=sharing)
 ![](https://i.imgur.com/qEl7sGh.jpeg)
 
-# [Cursors (click to go to folder with cursors)](https://drive.google.com/drive/folders/109ZAlsHuj9gGAcO-XQTv2lNX3CXXp7uu?usp=sharing)
+# [nuzzeh](https://drive.google.com/file/d/1q-e8joAxxFR5bxrJoSf6iTLMoMVrHrxG/view?usp=sharing)
+![](https://i.imgur.com/k9Lm3iu.png)
+
+# [Cursors (click to go to folder with all cursors)](https://drive.google.com/drive/folders/109ZAlsHuj9gGAcO-XQTv2lNX3CXXp7uu?usp=sharing)
 # [Blue w/ face (no trail)](https://drive.google.com/drive/folders/1XQnyFeEUvQarj1K-8_Uxdn7uq5TwD2up?usp=sharing)
 ![](https://i.imgur.com/lFcvxI1.png)
 # [Green (no trail)](https://drive.google.com/drive/folders/11PEFpQCR3M0g6F7zlbt4LvlPz_YqHBK_?usp=sharing)
@@ -54,3 +65,5 @@ Just click the name to download
 ![](https://i.imgur.com/YtSbW9T.png)
 # [white (normal trail)](https://drive.google.com/drive/folders/1bzLXkWPgYE74qtC5XG1JeZI7FBk_15Bf?usp=sharing)
 ![](https://i.imgur.com/FLI3pUQ.png)
+# [:turtle:](https://drive.google.com/drive/folders/1DGzVAftM1Oi4mHSHkIObUfaJa0bwzLjy?usp=sharing)
+![](https://i.imgur.com/pbtcNG8.png)
